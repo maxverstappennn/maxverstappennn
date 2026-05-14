@@ -4,4 +4,4 @@
   ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=Autobots.&style=for-the-badge)
 
 
-[RENTRY](https://rentry.co/franscarrboundaries) -------------------------- [GUNS.LOL](https://guns.lol/franscarr) ----------- [PRNS.PAGE](https://en.pronouns.page/@franscarrr)
+[RENTRY](https://rentry.co/thelastknightt) -------------------------- [GUNS.LOL](https://guns.lol/optimusprimee) ----------- [PRNS.PAGE](https://en.pronouns.page/@optimusprimee)
