@@ -5,4 +5,4 @@
 
 dont add discord thats in my guns.lol please ( its only there for aesthetics )
 
-[PRONOUNS.CC](https://pronouns.cc/@LH44)  ----------- [GUNS.LOL](https://guns.lol/7TIMEWORLDCHAMP) ----------- [PRNS.PAGE](https://en.pronouns.page/@LH44)  ----------- [ATABOOK](https://lh44.atabook.org)
+[PRONOUNS.CC](https://pronouns.cc/@LH44)  ----------- [GUNS.LOL](https://guns.lol/7TIMEWORLDCHAMP) ----------- [PRNS.PAGE](https://en.pronouns.page/@CL16)  ----------- [ATABOOK](https://lh44.atabook.org)
