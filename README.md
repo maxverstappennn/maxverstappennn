@@ -1,5 +1,4 @@
-<img width="936" height="514" alt="CL16 n MV1_33 art" src="https://github.com/user-attachments/assets/b4822e49-f6c1-48f0-b5c3-6d502613d594" />
-
+<img width="936" height="345" alt="★" src="https://github.com/user-attachments/assets/b5e43e21-f8f3-4255-be3d-98826004945f" />
 
 
 
@@ -54,4 +53,5 @@
 ㅤㅤㅤㅤ  
 ㅤㅤㅤㅤ   ୨୧  　　   ⊹ 　　       [PRNS.PAGE](https://en.pronouns.page/@CL16)  / [ATABOOK](https://lestappen.atabook.org)
 
-<img width="735" height="245" alt="download (18)" src="https://github.com/user-attachments/assets/8325e9a1-ea65-4215-b34e-ad85fd103d19" />
+<img width="736" height="245" alt="F1 TWITTER HEADER !" src="https://github.com/user-attachments/assets/d30617e1-348b-4964-8b12-b3c64a93d6c0" />
+
