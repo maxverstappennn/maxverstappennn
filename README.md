@@ -4,9 +4,8 @@
 <img width="736" height="425" alt="@ 𝗹𝗶𝗻𝗱𝗯𝗹𝗮𝗱" src="https://github.com/user-attachments/assets/f45f247c-c419-4b7e-915a-6ead22d4069b" />
 
 
-OSDD SYS, BOTH ACCOUNTS BELONG TO HEADMATES.
+i use a screenreader btw
 
-i use a screenreader, i cannot read fonts either. don't type in symbols or fonts near me, if you do i'll just ignore you.
 
 
   ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=F1-Drivers&style=for-the-badge)
